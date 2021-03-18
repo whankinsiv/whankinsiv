@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @whankinsiv
+- 👀 I’m interested in software engineering & real estate.
+- 🌱 I’m currently learning C
+- 💞️ I’m looking to collaborate on any interesting projects!
+- 📫 How to reach me (928)925-9820
